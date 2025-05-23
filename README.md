@@ -1,4 +1,5 @@
-![Uploading tenor (2).gif…]()
+![chiikawa](https://github.com/user-attachments/assets/1567b8f3-72bb-4f10-bdb6-9e80348836b1)
+
 <!--
 **2airren/2airren** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
