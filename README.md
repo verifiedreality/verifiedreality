@@ -1,4 +1,5 @@
-![chiikawa](https://github.com/user-attachments/assets/7b28af84-080b-4e93-90ab-1f153f8073ae)
+![Uploading tenor (2).gif…]()
+
 
 
 
