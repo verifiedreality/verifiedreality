@@ -1,5 +1,5 @@
 ![chiikawa](https://github.com/user-attachments/assets/1567b8f3-72bb-4f10-bdb6-9e80348836b1)
-
+HI my nickname is zai :) i can be anywhere on pt soo yes you can int with me especially if ure in these fandoms mp100, crk, gi, hsr, 4saken, bsd, pjsk, & alot more. i usually dont respond first so yeah
 <!--
 **2airren/2airren** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
