@@ -1,5 +1,5 @@
 ___
-                                 ![no-home-eunyung-baek](https://github.com/user-attachments/assets/be2febf6-9820-4297-ac24-c9160d636d85)
+  ![no-home-eunyung-baek](https://github.com/user-attachments/assets/be2febf6-9820-4297-ac24-c9160d636d85)
 ___
 <!--
 **2airren/2airren** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
