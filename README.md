@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=your-github-username&color=000000)
 ___
-![imsodone](https://github.com/user-attachments/assets/ec54f85f-1948-4afc-85f9-2687db11651e)
+![aww chiikawa](https://github.com/user-attachments/assets/6358ff2b-55d4-4645-abdf-c476e5b8d8fa)
 
 
 
