@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=VERIFIEDreality&label=Stalkers+?&color=bdbbb9)
+![](https://komarev.com/ghpvc/?username=VERIFIEDreality&label=Stalkers+?&color=lightgrey)
 ___
 ![srs](https://github.com/user-attachments/assets/8e0a364e-752e-4410-b33d-bd4e22b22740)
 ___
