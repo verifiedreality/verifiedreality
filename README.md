@@ -1,6 +1,8 @@
 ![](https://komarev.com/ghpvc/?username=your-github-username&color=000000)
 ___
-<h1 align="center">[aww chiikawa](https://github.com/user-attachments/assets/6358ff2b-55d4-4645-abdf-c476e5b8d8fa)</h1>
+<p align="center">
+[aww chiikawa](https://github.com/user-attachments/assets/6358ff2b-55d4-4645-abdf-c476e5b8d8fa)
+</p>
 
 
 <!--
