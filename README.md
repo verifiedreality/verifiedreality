@@ -1,7 +1,8 @@
 ![](https://komarev.com/ghpvc/?username=your-github-username&color=000000)
 ___
-  ![no-home-eunyung-baek](https://github.com/user-attachments/assets/be2febf6-9820-4297-ac24-c9160d636d85)
-___
+![imsodone](https://github.com/user-attachments/assets/ec54f85f-1948-4afc-85f9-2687db11651e)
+
+
 
 <!--
 **2airren/2airren** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
