@@ -6,11 +6,6 @@
 
 ![cutedivider](https://github.com/user-attachments/assets/69cbe5e3-5a35-4e06-ab0e-9d26452b4121)
 
-
-
-
-
-[alt acc!](https://github.com/illusionaryfool/)
 <!--
 **2airren/2airren** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
