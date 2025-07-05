@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=VERIFIEDreality&style=for-the-badge&label=stalkers+=&color=lightgrey)
+![](https://komarev.com/ghpvc/?username=VERIFIEDreality&style=for-the-badge&label=˖ ᡣ𐭩 ⊹ ࣪  ౨ৎ˚₊+=&color=lightgrey)
 
 
 
