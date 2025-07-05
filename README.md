@@ -10,7 +10,7 @@
 
 
 
-[other acc!](https://github.com/illusionaryfool/)
+[alt acc!](https://github.com/illusionaryfool/)
 <!--
 **2airren/2airren** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
