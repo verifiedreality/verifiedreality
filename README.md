@@ -1,7 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=VERIFIEDreality&style=for-the-badge&label=stalkers+=&color=lightgrey)
 ___
 ![srs](https://github.com/user-attachments/assets/8e0a364e-752e-4410-b33d-bd4e22b22740)
-___
 <!--
 **2airren/2airren** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
