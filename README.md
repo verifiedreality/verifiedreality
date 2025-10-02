@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=VERIFIEDreality&style=for-the-badge&label=sigmas&color=grey)
+![](https://komarev.com/ghpvc/?username=VERIFIEDreality&style=for-the-badge&label=visitors&color=grey)
 
 
 
