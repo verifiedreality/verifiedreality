@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=VERIFIEDreality&style=for-the-badge&label=&color=grey)
+![](https://komarev.com/ghpvc/?username=VERIFIEDreality&style=for-the-badge&label=sigmas&color=grey)
 
 
 
@@ -6,4 +6,4 @@
 
 
 
-![ivantill](https://github.com/user-attachments/assets/7bc73638-a204-45ee-9f6a-a24423b276d9)
+![venti-genshin-impact](https://github.com/user-attachments/assets/0015254d-46f4-4408-a065-0cdd5fb253d3)
